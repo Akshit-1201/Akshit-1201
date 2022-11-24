@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: 
 1. Instagram: @akshit_3215
-2. Email: akshitnegi2010@gmail.com, akshit.negi2020@vitstudent.ac.in
+2. Email: akshitnegi.work@gmail.com
 3. LinkedIn: https://www.linkedin.com/in/akshit-negi-aaa72a1ba
 
 <!---
