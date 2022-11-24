@@ -3,7 +3,7 @@
 - 🌱 I’m currently persuing my B.Tech in Information Technology in VIT Vellore
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: 
-1. Instagram: @akshit_3215
+1. Instagram: @akshit_2101
 2. Email: akshitnegi.work@gmail.com
 3. LinkedIn: https://www.linkedin.com/in/akshit-negi-aaa72a1ba
 
